@@ -1,5 +1,5 @@
 # 💫 About Me:
-## Hi, this is Syoshi <br><br>Machine Learning engineer<br>"Ambassador" of Artificial Intelligence<br>Developer since 2019 <br><br>For contacts: <br>Telegram: @syoshi7<br><br>(paul/pavel/pablo is the real name if u suddenly need)
+## Hi, this is Syoshi <br><br>Machine Learning engineer<br>Developer since 2019 <br><br>For contacts: <br>Telegram: @syoshi7<br>
 
 
 ## 🌐 Socials:
